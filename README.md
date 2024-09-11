@@ -1,2 +1,2 @@
 # anyashop
-WEBSITE MILI @anyadsni [ TELEGRAM ]
+WEBSITE MILIk @anyadsni [ TELEGRAM ]
