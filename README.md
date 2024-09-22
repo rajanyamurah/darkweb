@@ -1,2 +1,2 @@
 # anyashop
-WEBSITE MILIK @aly4ww [ TELEGRAM ]
+WEBSITE MILIK @alyaaid [ TELEGRAM ]
